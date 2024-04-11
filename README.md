@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🔭 I’m currently working on a magic castle.
+- 🌱 I’m currently learning Mysticism.
+- 👯 I’m looking to collaborate on Tarot.
+- 📫 How to reach me: luo.yaying@qq.com
+- 😄 Pronouns: Her
+- ⚡ Fun fact: I have four dogs.
